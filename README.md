@@ -23,6 +23,6 @@
 
 <div align="center">
 
-###  ✌️Em momentos de raiva ao em vez de arremessar pedras, pegue uma caneta e escreva o sente✌️
+###  ✌️ Em momentos de raiva ao em vez de arremessar pedras, pegue uma caneta e escreva o que sente ✌️
 
 </div>
