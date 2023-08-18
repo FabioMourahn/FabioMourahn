@@ -1,16 +1,15 @@
-### Hi there 👋
+<div align="center">
+  
+  ![Welcome My GIF - Welcome My World - Discover   Share GIFs](https://github.com/FabioMourahn/FabioMourahn/assets/142456922/5925e7cc-b30a-4850-a6b2-3fa586d9959d)
 
-<!--
-**FabioMourahn/FabioMourahn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+</div>
 
-Here are some ideas to get you started:
+# **Opa eai? Eu me chamo Fabio Augusto de Moura prazer!** 🧑‍🎓 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[![instagraml](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/fabiomourahn)
+[![linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://linkedin/fabio-moura)
+[![pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?&style=for-the-badge&logo=Pinterest&logoColor=white)](https://br.pinterest.com/negocrazy/)
+----------------------------------------------------------------------
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Fabiomourahn&show_icons=true&theme=tokyonight)
+
+### 🖋️ Uma grande mestre é um eterno aprendiz 🖋️
