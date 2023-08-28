@@ -23,7 +23,7 @@
 
 <div align="center">
 
-###  ✌️ Em momentos de raiva ao em vez de arremessar pedras, pegue uma caneta e escreva o que sente ✌️
+###  ✌️ Um verdadeiro mestre é um eterno aprendiz ! ✌️
 
 </div>
 
