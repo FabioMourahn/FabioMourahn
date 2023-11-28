@@ -1,14 +1,8 @@
-<div align="center">
-  
-  ![Welcome My GIF - Welcome My World - Discover   Share GIFs](https://github.com/FabioMourahn/FabioMourahn/assets/142456922/5925e7cc-b30a-4850-a6b2-3fa586d9959d)
-
-</div>
-
 # **Eu me chamo Fabio Augusto de Moura, prazer!**  
 
 <div align="center">
 
-![download](https://github.com/FabioMourahn/FabioMourahn/assets/142456922/66cb2dd6-c8ab-4377-9647-bb6261fb0306)
+![225813708-98b745f2-7d22-48cf-9150-083f1b00d6c9](https://github.com/FabioMourahn/FabioMourahn/assets/142456922/d25e10bd-97b2-466a-ab47-f36334288807)
 
 </div>
 
@@ -23,8 +17,10 @@
 
 <div align="center">
 
-###  ✌️ Um verdadeiro mestre é um eterno aprendiz ! ✌️
+###  💎❤️todo gesto de amor tem o poder de transformar o mundo todo, mesmo que seja o mundo todo de uma pessoa só !❤️💎
+
+![imagem15](https://github.com/FabioMourahn/FabioMourahn/assets/142456922/78194095-c868-4b95-9b34-12c07e7b79fb)
 
 </div>
 
-# BYE
+# LOL
